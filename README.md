@@ -1,5 +1,5 @@
 ## Kennedy McMann
-
+![Branching](macma.jpg)
 Kennedy McMann was born on October 30, 1996 in Holland, Michigan and was raised in Mesa, Arizona.
 She is the only daughter of two kids born to Lisa McMann and Matt McMann. The family relocated from Michigan to Arizona in 2004.
 She graduated from Skyline High School in Mesa, where she was a standout student. She was named student of the month in her senior year and president of the Skyline Performing Arts Club at her school and at the local Valley Youth Theater (VYT). Her performance in Macbeth at VYT won her an AriZoni Award.
